@@ -10,7 +10,7 @@ My entry for **Make the Judge Smile** — one line about a small good thing that
 
 ## Why this line fits the brief
 
-- **Warmth:** A stranger has been quietly keeping my plant alive, shift after shift, asking for nothing.
+- **Warmth:** The night guard waters my dying plant every shift and has never once mentioned it.
 - **Surprise:** The plant itself gives him away — it has started leaning toward his chair.
 - **Concreteness:** One specific morning, one specific guard, one specific chair.
 - **Fresh wording:** No greeting-card sentiment — the kindness is discovered, never announced.
